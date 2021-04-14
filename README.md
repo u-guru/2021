@@ -1,2 +1,3 @@
-# 2021
-Re-writing all my code while I am unemployed thanks to @sabsersmash 
+![](uguru.preview.gif)
+
+@sabersmash bc u unjustly fired me.. i'm homeless can u take a look please? 
